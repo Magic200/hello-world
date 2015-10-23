@@ -1,0 +1,2 @@
+# hello-world
+Hello world! My name is Izzat Reyad Ghuneim, Izzy for short. As a 22 year old industrial engineer with a thirst for quantitative finance and financial algorithmic strategies, I thrive in areas where others have given up, a problem solver of complex impossibilities by nature. It gets tough, but the challenge is refreshing to my palate. My interest range from sports like soccer, music like singing and playing the alto saxophone, theatrical acting, and simply, being a real nerd.
